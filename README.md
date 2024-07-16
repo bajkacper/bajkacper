@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Java, C/C++**
 
-- 📫 How to reach me **bajkacper1@gmail.com**
+- 📫 How to reach me **bajkacper@proton.me**
 
 
 
